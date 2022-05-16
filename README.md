@@ -5,9 +5,10 @@
 telegram: ksenieuphoria <br>
 G-mail: ksushaspring@gmail.com <br>
 
+# I am Ksenia
+
 ## About me: <br>
 
-- 👋 Hi, I’m @ksenieuphoria
 - 👀 I’m interested in music
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on 
