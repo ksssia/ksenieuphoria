@@ -3,7 +3,7 @@
 ## Connect with me:<br>
 
 telegram: ksenieuphoria <br>
-G-mail:ksushaspring@gmail.com <br>
+G-mail: ksushaspring@gmail.com <br>
 
 
 - 👋 Hi, I’m @ksenieuphoria
