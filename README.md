@@ -2,8 +2,8 @@
 
 ## Connect with me:<br>
 
-telegram: ksenieuphoria
-G-mail:ksushaspring@gmail.com
+telegram: ksenieuphoria <br>
+G-mail:ksushaspring@gmail.com <br>
 
 
 - 👋 Hi, I’m @ksenieuphoria
