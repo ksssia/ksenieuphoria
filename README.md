@@ -5,8 +5,6 @@
 telegram: ksenieuphoria <br>
 G-mail: ksushaspring@gmail.com <br>
 
-# I am Ksenia
-
 ## About me: <br>
 
 - 👀 I’m interested in music
