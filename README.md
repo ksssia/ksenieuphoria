@@ -1,7 +1,7 @@
 
 ## Connect with me:<br>
 
-telegram: ksssia <br>
+telegram: @ksssia <br>
 G-mail: ksushaspring@gmail.com <br>
 
 ## About me: <br>
